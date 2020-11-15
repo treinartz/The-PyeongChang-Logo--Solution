@@ -1,1 +1,0 @@
-# The-PyeongChang-Logo--Solution
